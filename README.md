@@ -3,7 +3,6 @@
 - 💞️ I’m looking to collaborate on sports research (NFL Big Data Bowl 24 + Sloan Analytics 25)
 - 📫 How to reach me: lqiu03@ucla.edu
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: Read Capital V.1 in under 10 weeks
 
 ### Languages and Tools:
 
